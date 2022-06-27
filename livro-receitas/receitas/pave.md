@@ -1,34 +1,20 @@
-# Bolo de Cenoura 🎂
+# Pavê 🍽
 
 ### Ingredientes 
 
-- 3 cenouras médias raspadas e picadas
-- 1 xícara de óleo
-- 2 xícaras de açúcar
-- 3 ovos
-- 1 colher sopa fermento em pó
-- 1 pitada de sal
-- 2 xícaras farinha de trigo
-- 1/2 xícara de leite
-- 6 colheres de açúcar 
-- 2 colheres de chocolate em pó
-- 1 colher de manteiga
+- 1 lata de creme de leite1 lata de leite (a mesma medida da lata de creme de leite).
+- 2 latas de leite condensado.
+- 2 gemas.
+- 2 colheres de maisena.
+- 3 colheres de chocolate em pó ou achocolatado.
+- biscoito maisena.
+- leite para molhar os biscoitos.
+- raspas de chocolate (opcional).
+- manteiga sem sal ou margarina, só para dar o ponto.
 
 ### Modo de preparo
 
-**Massa:**
-
-1. Bata no liquidificador todos os ingredientes da massa menos a farinha de trigo.
-2. Depois de tudo batido, acrescente a farinha aos poucos e bata um pouco mais até formar bolhas.
-3. Unte a forma nº 2 e ponha para assar.
-4. Depois de assado e ainda quente, jogue a cobertura.
-
-**Cobertura:**
-
-1. Leve todos os ingredientes ao fogo até engrossar.
-2. Jogue sobre o bolo quente.
-
-
-
-
-
+1. Coloque primeiro o creme branco.
+2. Em seguida, mergulhe os biscoitos no leite e coloque sobre o creme branco.
+3. Depois, coloque o creme preto e acrescente as raspas de chocolate sobre ele.
+4. Deixe no congelador durante 2 horas.
